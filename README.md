@@ -1,9 +1,5 @@
-- 👋 Hi, I’m @Wasimsha45435
+- 👋 Hi, I’m GHOST/RANSOMWARE
 - 👀 I’m interested in Hacking , gaming etc.
 - 🌱 I’m currently learning ethical hacking
-- 📫 Ypu can reach me thru wasimsha45435@gmail.com or wasimsha45435@protonmail.com
+- 📫 Ypu can reach me thru  ............................
 
-<!---
-Wasimsha45435/Wasimsha45435 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
